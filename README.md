@@ -1,1 +1,1 @@
-<blockquote class="twitter-tweet"><p lang="en" dir="ltr">Go get you a slushy</p>&mdash; Denzel Curry (@denzelcurry) <a href="https://twitter.com/denzelcurry/status/1748193177386078239?ref_src=twsrc%5Etfw">January 19, 2024</a></blockquote> <script async src="https://platform.twitter.com/widgets.js" charset="utf-8"></script>
+<blockquote class="twitter-tweet"><p lang="en" dir="ltr">Go get you a slushy</p>&mdash; Denzel Curry (@denzelcurry) <a href="https://twitter.com/denzelcurry/status/1748193177386078239?ref_src=twsrc%5Etfw">January 19, 2024</a></blockquote>
